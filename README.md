@@ -1,0 +1,1 @@
+Community project by Team Helping Hands supporting Feed the Hungry Calgary. Raised $500 through a fundraising event to fight food insecurity. Includes event report, budget, lessons learned, and insights on community engagement and project execution.
